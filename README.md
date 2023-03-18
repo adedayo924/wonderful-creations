@@ -1,2 +1,2 @@
-We're currently building wonderful creations website 
+We're currently building wonderful creation's website.
 Stay tuned
